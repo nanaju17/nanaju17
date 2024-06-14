@@ -1,9 +1,6 @@
 ## BOAS VINDAS AO MEU PREFIL 👋
 
-<!--
-meu nome Ana julia
-
-Here are some ideas to get you started:
+meu nome Ana juli
 
 - 🔭 estou estudando no alura ...
 - 🌱 Estou me desenvolvendo na linguagem JavaScript...
