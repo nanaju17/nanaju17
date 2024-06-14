@@ -10,7 +10,7 @@ meu nome Ana julia
 
 0000110572086xsp@al.educacao.sp.gov.br
 
-![](https://images.app.goo.gl/sF8BVm5TcwSR2b5WA))Café Ana Júliaestá licenciado sob CC BY 4.0© 2 tchau UE 
+![](https://images.app.goo.gl/sF8BVm5TcwSR2b5WA)Café Ana Júliaestá licenciado sob CC BY 4.0© 2 tchau UE 
 
 
 
