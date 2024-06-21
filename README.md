@@ -12,7 +12,7 @@ meu nome Ana julia
 
 
 
-![(https://github.com/nanaju17/nanaju17/assets/172046619/444458cf-ee5b-4f76-8407-728303645ebf)]
+![(https://th.bing.com/th/id/OIP.4UR_o8LK104-JtMtwqkMFwHaEK?rs=1&pid=ImgDetMain]
 
 O café Ana Julia © 2024 da UE está licenciado sob CC BY 4.0
 
