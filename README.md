@@ -12,7 +12,7 @@ meu nome Ana julia
 
 
 
-![(https://th.bing.com/th/id/OIP.4UR_o8LK104-JtMtwqkMFwHaEK?rs=1&pid=ImgDetMain]
+![https://th.bing.com/th/id/OIP.4UR_o8LK104-JtMtwqkMFwHaEK?rs=1&pid=ImgDetMain]
 
 O café Ana Julia © 2024 da UE está licenciado sob CC BY 4.0
 
