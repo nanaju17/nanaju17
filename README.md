@@ -12,7 +12,7 @@ meu nome Ana julia
 
 
 
-![https://media1.tenor.com/images/830bc6bd1c20f046f7dd0c5db8a9d4aa/tenor.gif?itemid=17731315]
+![https://media1.tenor.com/images/01799dd6c62f68c9060cc0f6e313fc51/tenor.gif?itemid=14242277]
 O café Ana Julia © 2024 da UE está licenciado sob CC BY 4.0
 
 
