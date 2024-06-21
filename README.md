@@ -12,7 +12,7 @@ meu nome Ana julia
 
 
 
-![![Uploading image.png…]()
+![![Uploading image.png…
 ]
 
 O café Ana Julia © 2024 da UE está licenciado sob CC BY 4.0
