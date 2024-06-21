@@ -10,7 +10,8 @@ meu nome Ana julia
 
 0000110572086xsp@al.educacao.sp.gov.br
 
-![](https://www.bing.com/th/id/OGC.9355a58dd77f8dcd1df4cdf2097af3aa?pid=1.7&rurl=https%3a%2f%2fmedia1.tenor.com%2fimages%2f9355a58dd77f8dcd1df4cdf2097af3aa%2ftenor.gif%3fitemid%3d5532131&ehk=oktXmTXQAy%2bu4A1inXi%2b4qYNRKaxcLcE%2bdNxjksHjvo%3d)
+![](https://th.bing.com/th/id/R.78895361b3c17a5f8e98e255f204ef7b?rik=RmsZnlYR9mnNxA&riu=http%3a%2f%2fbuzz.longwood.edu%2ffiles%2f2015%2f02%2fSB.gif&ehk=Xo%2fbb1w%2b9SRqg866%2f5LlwYFnnKXt8futLlv4nUdOH7o%3d&risl=&pid=ImgRaw&r=0)
+
 O café Ana Julia © 2024 da UE está licenciado sob CC BY 4.0
 
 
